@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Miles-Fortniter
-- 👀 I’m interested in hacking or grinding in box fruits also fortnite too
+- 👀 I’m interested in hacking or grinding in blox fruits also fortnite too
 - 🌱 I’m currently learning lithuanian
 - 💞️ I’m looking to collaborate on youtube
 - 📫 How to reach me mail: inceyavuz656@gmail.com
